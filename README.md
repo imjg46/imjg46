@@ -1,2 +1,2 @@
 # imjg46
-i am idiot
+i am not idiot
